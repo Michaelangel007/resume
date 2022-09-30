@@ -1,3 +1,3 @@
-I am currently open to new possibilities.
+I am currently OPEN to new possibilities.
 
 September 2022.
