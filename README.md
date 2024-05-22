@@ -1,3 +1,3 @@
-I am currently CLOSED to new possibilities at this time.
+I am currently OPEN to new possibilities at this time.
 
-February 2023
+May 2024
